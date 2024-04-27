@@ -1,0 +1,1 @@
+# Fush1ren.github.io
